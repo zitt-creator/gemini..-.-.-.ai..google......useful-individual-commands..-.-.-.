@@ -1,17 +1,15 @@
-#
+# chat  --  ai
 ##
 ##
-#
+# efficient input
 #####
-##
-##
-# working with chat--ai..  . ./.
+# <img width="640" height="360" alt="1000069909" src="https://github.com/user-attachments/assets/ad984e98-f739-44eb-8d0e-c92fe58111d1" />
 #
 ##
 ##
+#
 #####
 # n o t e
-# gemini ++ youtube--music..  . ./.ai----search.
 # c o d e  ----  waiting--music
 .play random music    .aicreated.live..  . ./.
 /.
@@ -56,10 +54,6 @@ It takes sometimes days or more, before they are fully installed.
 ##
 ##
 #####
-##
-##
 #
-::
-;;;;;
-::
+#
 /.
