@@ -12,16 +12,34 @@
 #####
 # n o t e
 # gemini ++ youtube--music..  . ./.ai----search.
-# c o d e
+# c o d e  ----  waiting--music
 .play random music    .aicreated.live..  . ./.
 /.
 .create..add++==    .exeexe.apk.apk..  . ./.yt-music.apk.exeexe...apk.apk..  . ./.
 /.
 .aicreate    .add++==    .live-web-search......search==    .techno.instrumental.modern.hip.punk.pop.new.classic.hires.high-quality..  . ./.music-play.play...yt-music.apk.apk..  . ./.
 /.
+#
+##
+##
+#####
+# n o t e
+# c o d e  ----  oldschool--groove----music
+.create..yt-music--playback++==    .play.random...mix.mix......create..create++==    .infinite.mix.hires.high-quality.lossless.ls.hires.high-quality.vorbis..  . ./.play.genre++==    .punkrock.liveaid1985.steel-guitar.techno.rave.jingle.hendrix----groove.hendrix.instrumental.classic-instrumental..  . ./.
+/.
+.create..aimusic--playback.yt-music.apk.apk..  . ./.
+/.
+.play..playback    .yt-music.random..  . ./.
+/.
+#
+##
+##
+#
+#####
+#
 # change the full code or just add++ your favourites at the end directly after the last  /.  to create your personal mix in yt--music.apk..  . ./.
 #
-google want money; of course for youtube--music's full functions, like backround play option..  . ./.
+google wants money; of course for youtube--music's full functions, like backround play option  ///  function..  . ./.
 #
 ##
 ##
